@@ -1,3 +1,1 @@
-# szymonstack.github.io
-
-#willy dilly dilly doo
+silly guy doing silly things in a silly world
